@@ -1,1 +1,1 @@
-# amoozesh.makeup
+abatil2000@gmail.com
